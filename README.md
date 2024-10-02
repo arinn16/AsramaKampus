@@ -1,4 +1,4 @@
 # Asrama Kampus
 
-abis di ganti jo
+Asrama Kampus adalah 
 
